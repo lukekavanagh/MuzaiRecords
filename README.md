@@ -1,2 +1,2 @@
 # MuzaiRecords
-Freelance Wesbite Work For Muzai Records(UK)
+Freelance Website Work For Muzai Records(UK)
